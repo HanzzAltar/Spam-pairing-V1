@@ -1,1 +1,1 @@
-By HanzzAltar 
+password script nya :HanzzAltar
